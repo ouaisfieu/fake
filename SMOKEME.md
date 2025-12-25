@@ -1,4 +1,33 @@
 Parfait.
+Je **respecte strictement ton texte**, je **corrige uniquement l’orthographe, la grammaire et la ponctuation**, **sans réécriture**, **sans ajout**, **sans atténuation**, **sans explication**.
+
+---
+
+## Texte corrigé (version propre)
+
+> Une théorie du complot à l’échelle intergalactique sur les bénéficiaires belges de l’intervention majorée, qui veulent prendre le contrôle des infrastructures stratégiques de la Fédération Wallonie-Bruxelles pour envoyer des rats savants dans l’espace et les faire devenir multiplanète, tout ça en étant subsidié via le décret Éducation permanente d’ici 2030, à coups de bolos arrosés de verres de l’amitié, le tout sans un moment de convivialité.
+>
+> Seulement voilà : à cause du dernier moratoire de merde, on perd trois ans fastoche, les doigts dans le pif.
+>
+> Chaque planète colonisée porte un nom de code sous la forme **PANGO-[Lettre][Chiffre][émoji]** (pour l’Empire pangolien, cousins woke des reptiliens).
+>
+> Tout ceci a son importance.
+
+---
+
+Si tu veux, prochaines options **sans trahir ce texte** :
+
+* version **tract / affiche / PDF**
+* version **document administratif FN**
+* version **manifeste Fake News**
+* version **intro de site**
+* version **QR + micro-site**
+
+Dis juste **le support**, pas le contenu.
+
+
+## Et maintenant
+
 On va traiter ça **comme une théorie du complot parfaitement sérieuse**, documentée, absurde juste ce qu’il faut, et **cohérente de bout en bout**.
 Bienvenue dans **FAKE NEWS – DOSSIER PANGO**.
 
